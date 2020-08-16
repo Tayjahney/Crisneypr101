@@ -38,25 +38,25 @@ declined, etc.
 
 ## Definitions "uncategorized"
 
-》"misleading forturenates"< good possibilities or propositions or natural and untral sequences happen that make a solid stop or turn in an performance or transaction.
-》"supposed"< unaffordable or unexpected expenses cost or fees flag security breach
-》"key jingle" a statement made the garantor of a secured party with unlocking instrumentation.
-》"cough remix" the communiction between parties that aren't (splert/thought)based.
-》 "splert/thought" when the surety compares,rambles,spins,trips,complains etc...in a public and working environment not to be the same as a (alert/thought) that only takes place at private and solo venues of the surety.
-》"truth statement affirmation" a locally reassurer or underwriter that uses sound availability. 
-》"pearl door" the safety depositing box.
-》"solid rings" a bonded entity or unavailable position.
-》"break" a expedited dimiss away according to the (teller)
-》"teller" the unique sound given by the automated machine,display,seed etc..
-》"d route/v route" types of transmitting utilities  by customized expression.
-》"associated course" a third party in any given party opportunity.
-》"p4p booking" when a company wishes to pursuit a vunerability but hasn't the means to securely propose interest, so the a secured party becomes a trustee and a interactive promoter for the parties in proposition.
-》"swing arm" a motion adjustment on a v route indicating transaction availability. 
-》"hard close" a v route unexcepted pincode
-》"v route relink" transaction processing because a possible disconnection.
-》"aspects" transaction interference 
-》"headright or headleft" no bank drop-off for route blocks.
-》"forturenates" quick route exchanges.
-》"giglee" common perfected procedure drawn by parties to ensure account status states and statements.
-》"plus recognized"account notice
-》"relink" simple subscription to an account already established.
+"misleading forturenates"< good possibilities or propositions or natural and untral sequences happen that make a solid stop or turn in an performance or transaction.
+"supposed"< unaffordable or unexpected expenses cost or fees flag security breach
+"key jingle" a statement made the garantor of a secured party with unlocking instrumentation.
+"cough remix" the communiction between parties that aren't (splert/thought)based.
+"splert/thought" when the surety compares,rambles,spins,trips,complains etc...in a public and working environment not to be the same as a (alert/thought) that only takes place at private and solo venues of the surety.
+"truth statement affirmation" a locally reassurer or underwriter that uses sound availability. 
+"pearl door" the safety depositing box.
+"solid rings" a bonded entity or unavailable position.
+"break" a expedited dimiss away according to the (teller)
+"teller" the unique sound given by the automated machine,display,seed etc..
+"d route/v route" types of transmitting utilities  by customized expression.
+"associated course" a third party in any given party opportunity.
+"p4p booking" when a company wishes to pursuit a vunerability but hasn't the means to securely propose interest, so the a secured party becomes a trustee and a interactive promoter for the parties in proposition.
+"swing arm" a motion adjustment on a v route indicating transaction availability. 
+"hard close" a v route unexcepted pincode
+"v route relink" transaction processing because a possible disconnection.
+"aspects" transaction interference 
+"headright or headleft" no bank drop-off for route blocks.
+"forturenates" quick route exchanges.
+"giglee" common perfected procedure drawn by parties to ensure account status states and statements.
+"plus recognized"account notice
+"relink" simple subscription to an account already established.
