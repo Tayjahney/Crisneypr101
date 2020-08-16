@@ -1,9 +1,9 @@
 # Security Policy
-To maintain a secured parties request. all relent signs, symbols and processes are enacted.
+To maintain a secured parties request. all relevent signs,symbols and processes are enacted.
 if there ever is a security problem with the surety because of misleading forturenates
-or slower response times between the supposed then .
+or slower response times between the "supposed" then .
 the promiser must initiate the bond with a "key jingle"
-if the guarantor is unable to provide the key jingle then a "cough remix" becomes the most relevant communication without a "splert/thought" signale to the surer.
+if the guarantor is unable to provide the key jingle then a "cough remix" becomes the most relevant communication without a "splert/thought" signale from the surer.
 once the surety receives the "truth statement affirmation" then the motion to secure the "pearl door" begins.
 if, by any chance the security policy has been breached by unknown entities or "solid rings" all parties must "break"
 
